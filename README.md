@@ -1,0 +1,1 @@
+# DSK2024-TP-02-LaporanAkhir-2400018144-Delicia-Risa
